@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @madame2006
 - 👀 I’m interested in yakisoba
-- 🌱 I’m currently learning sla
-- 💞️ I’m looking to collaborate on tbm nao sei
+- 🌱 I’m currently learning a usar isso aq
+- 💞️ I’m looking to collaborate on nao faço ideia
 - 📫 How to reach me é complicado
   
 - 😄 Pronouns: ela/dela
